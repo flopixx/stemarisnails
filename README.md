@@ -1,4 +1,4 @@
-<h1>Stemarisnails 💖💖 💅🏼</h1>
+<h1> 💖 Stemarisnails 💖 💅🏼</h1>
 
 <h1>Version desktop 💻</h1>
 
